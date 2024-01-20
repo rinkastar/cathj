@@ -1,5 +1,5 @@
-# heartwr.github.io
+# cathj.github.io
 
-http://cafe.naver.com/twrpgn
+https://discord.gg/RDFbjw3sMB
 
-Discord : heartlog
+Discord : ( ˵•́ ᴗ •̀˵)#0951
